@@ -1,0 +1,1 @@
+The ingredients for this fish is Tuna, tomatoes, lemons, romain lettuce, rose mary, salt, pepper, and chili spice.
